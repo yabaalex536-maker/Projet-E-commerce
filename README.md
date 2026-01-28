@@ -1,2 +1,2 @@
-#Alexis Ézéchiel Lessomo Yaba
+Alexis Ézéchiel Lessomo Yaba
 portfolio 
